@@ -2,6 +2,8 @@
 
 - [Eugene Gorman](https://au.linkedin.com/in/eugene-gorman-aab9345b)
 
+- [Glenn Marshall](https://www.linkedin.com/in/glenn-marshall-a0a7092)
+
 - [The Real Beast](http://thebeast.me/about/) 
 
 - [Joe Sweeney](https://au.linkedin.com/in/bigjoesweeney)
